@@ -16,4 +16,5 @@
 
 Бонусное задание:
 ![](https://vk.com/im?act=browse_images&id=846662)
+
 ![](https://pp.userapi.com/c840334/v840334764/75aff/KLeWnVfPvp8.jpg)
