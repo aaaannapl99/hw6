@@ -1,4 +1,10 @@
 # hw6
+Часть 1 задание 1
+![](https://pp.userapi.com/c844723/v844723121/21e60/YEM994YaML4.jpg)
+ задание 2
+ ![](https://pp.userapi.com/c844723/v844723710/27a0a/ilwR7krCVLo.jpg)
+ ![](https://pp.userapi.com/c844723/v844723710/27adc/MWYDTNHU88w.jpg)
+
 Часть 2. задание 1
 ![](https://sun1-3.userapi.com/c840728/v840728522/6e179/3gF5GiuIYWA.jpg)
 
